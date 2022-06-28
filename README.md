@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Hacking, Cheating
 - 🌱 I’m currently learning ... C#, Game Hacking
 - 💞️ I’m looking to collaborate on ... Cheats
-- 📫 How to reach me ... Dazee#0001 on discord
+- 📫 How to reach me ... Dazee#6666 on discord
 
 <!---
 Dazee666/Dazee666 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
